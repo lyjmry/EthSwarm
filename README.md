@@ -54,7 +54,7 @@ Hackathon participation projects: 15+
 
 
 
-# About why us：
+# About why is us：
 Shu brother：
 
 Lu:
